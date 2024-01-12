@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @JonIsACat
-- This is an acount for school projects
+- This is an account for school projects
